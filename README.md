@@ -107,7 +107,7 @@ In this profile you will find projects related to:
 
 📍 João Pessoa, Paraíba, Brazil
 
-🔗 LinkedIn: Coming Soon
+🔗 LinkedIn:www.linkedin.com/in/lucasmiguel83
 
 ---
 
